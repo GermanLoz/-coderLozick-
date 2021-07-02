@@ -1,2 +1,2 @@
-# -coderLozick-
-Portafolio 
+# germanlozickyj
+germanlozickyj
